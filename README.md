@@ -12,9 +12,9 @@
 
 ---
 
-📍 Nashik, Maharashtra  
-📧 **vaibhavthite9@gmail.com**  
-📞 **9369383274**
+📍 Solapur, Maharashtra  
+📧 **vaibhavthitegit77@gmail.com**  
+📞 **9763697000**
 
 <img src="https://media.giphy.com/media/l0MYt5jPR6QX5pnqM/giphy.gif" width="320"/>
 
